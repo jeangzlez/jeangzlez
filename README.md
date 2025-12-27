@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I'm Jeannie, an undergraduate from CSULB. 
+
+I design and build whatever comes to mind!
